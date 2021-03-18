@@ -12,12 +12,12 @@
 
 
 ### Why I build this website ?
-
 This website was established on March 18, 2021 for the following reasons:
 1. Nowadays, everyone of us has been exposed to education, but Unfortunately,  many people don’t clearly know teachers at all. They are thinking that the only task for teachers is to teach a lesson. Therefore, the first purpose of this website is to let those people who don’t know teachers know more about the profession of teachers.
-2. Educational disciplines, family-school relations, educational equity, teacher-student relations, electronic products, winter and summer vacations, teacher salaries, and other educational topics will inevitably cause widespread discussion in the society, but the sad thing is that the group does not understand teachers at all even point fingers at the teachers, and even want to control or influence the teachers. Therefore, the second purpose of this website is to help teachers and education speak out.
-3. Recently, a student of mine who was only 16 years old left the world she had been optimistic, cheerful, strong, and beloved of because of cancer after 3 years of fighting cancer, and only used this website to commemorate her.
+2. Educational disciplines, family-school relations, educational equity, teacher-student relations, electronic products, winter and summer vacations, teaching salaries, and other educational topics will inevitably cause widespread discussion in the society, but the sad thing is that the group doesn’t understand teachers at all even point fingers at the teachers, and even want to control or influence the teachers. Therefore, the second purpose of this website is to help teachers and education speak out.
+3. Recently, a student of mine who was only 16 years old left the world she had been optimistic, cheerful, strong, and beloved of because of cancer after 3 years fighting, and only used this website to commemorate her.
 
 For the time being, I set the goal of this website as: to record my professional life in the coming year.
 
 Finally, I want to say to some people that if you don't enter a profession, you won't fully know it. If you don't know it, you won't understand it. Then you are not qualified to point fingers at it.
+
