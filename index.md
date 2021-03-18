@@ -36,7 +36,8 @@
 #### 20210313 Saturday
 1. Invigilated for a day in isolation from the world and unable to carry a mobile phone.
 2. In the evening, I received the news that one of my 16-year-old students left the world she loved because of cancer. I reported this situation to the school.
-
+3. A student (Represented by "A") who suspended school due to psychological problems applies for studying by hers own during the evening self-study period and do not write late homework, in order to learn tasks that lefted due to suspension.
+4. A's mother bought a device and wanted her to use it in school for treatment of psychological problems. I reported this situation to the school and appointed A's mother to school next week.
 
 
 ### Why I build this website ?
