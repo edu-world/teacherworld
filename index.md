@@ -4,10 +4,12 @@
 
 20210314
 Continue to invigilate for one day.
+
 In the evening, I wiped out the name of the deceased classmate from the leave list on the blackboard before the weekend students returned to school.
 
 20210313
 Invigilated for a day in isolation from the world and unable to carry a mobile phone.
+
 In the evening, I received the news that one of my 16-year-old students left the world she loved because of cancer. I reported this situation to the school.
 
 
