@@ -1,4 +1,4 @@
-## Teacherworld will help you have a deep understand of teacher.
+## Teacherdiary will help you have a deep understand of teacher.
 
 
 
